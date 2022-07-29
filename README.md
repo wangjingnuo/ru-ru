@@ -1,1 +1,1 @@
-# jnw031.github.io/zh-cn
+# jnw031.github.io/ru-ru
